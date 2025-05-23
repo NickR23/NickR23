@@ -1,4 +1,4 @@
-## Nick (ex-NYC,ex-Meta,ex-sleepyhead)
+## Nick (ex-NYC,ex-SanFrancisco,ex-Raleigh,ex-sleepyhead duderino)
 Hacking my way to ur heart <3
 
 <div align="center">

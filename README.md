@@ -1,5 +1,12 @@
 ## Nick (ex-NYC,ex-SanFrancisco,ex-Raleigh,ex-sleepyhead duderino)
-Hacking my way to ur heart <3
+Currently looking for my next gig. 
+
+Feel free to contact me if you have something cool going on:
+ - [Linkedin](https://www.linkedin.com/in/nicholas-richardson-452bb9143/)
+ - Email @ (nic.rr@icloud.com)
+
+
+Have fun!
 
 <div align="center">
   <img src="https://images.steamusercontent.com/ugc/1634199412395784028/4F2C9C61766FE2D55541DC95AD004C2BB5274325/?imw=637&imh=358&ima=fit&impolicy=Letterbox&imcolor=%23000000&letterbox=true" alt="Cosmic Rodent GIF" width="300"/>

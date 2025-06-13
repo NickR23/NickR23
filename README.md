@@ -1,4 +1,4 @@
-## Nick (ex-NYC,ex-SanFrancisco,ex-Raleigh,ex-sleepyhead duderino)
+## Nick
 Currently looking for my next gig. 
 
 Feel free to contact me if you have something cool going on:

@@ -1,5 +1,5 @@
 ## Nick
-Currently looking for my next gig. 
+Currently ~~looking for my next gig~~ @ Red Hat working on _OpenShift_. 
 
 Feel free to contact me if you have something cool going on:
  - [Linkedin](https://www.linkedin.com/in/nicholas-richardson-452bb9143/)
